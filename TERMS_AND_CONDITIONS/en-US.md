@@ -1,4 +1,4 @@
-# Axis Pay Mobile App Terms & Conditions
+# Axis Mobile App Terms & Conditions
 
 ## Definitions
 
